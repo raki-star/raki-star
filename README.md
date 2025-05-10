@@ -8,7 +8,7 @@
 <p align="center">
  ᛝ     mosztly afk/offtab    ◞    whis2int always   !!
   <p align="center">
-  ◠    irl adam raki   ୨୧   doubles iwec or dni,..sorry!! i dont have problems w them, they just make me uncomfy.
+  ◠    HUGE adam raki kin   ୨୧   doubles iwec or dni,..sorry!! i dont have problems w them, they just make me uncomfy.
    <p align="center">
     ‎ᘎ   hannibal extended universe (heu) PLEASE INTERACT!! sniffsniffs ⊹
  <p align="center">
